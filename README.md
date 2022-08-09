@@ -1,1 +1,1 @@
-15 Eylül 2022 00.00 da botu şartsız paylaşıyorum
+15 Eylül 2022 00.00 Da Botu Şartsız Paylaşıyorum
