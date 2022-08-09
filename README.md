@@ -1,1 +1,1 @@
-# v13guard-database
+15 Eylül 2022 00.00 da botu şartsız paylaşıyorum
